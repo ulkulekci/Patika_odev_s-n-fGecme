@@ -1,0 +1,1 @@
+# Patika_odev_s-n-fGecme
